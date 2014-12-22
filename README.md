@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-POINTS Of INSTRVCTION for the Ignorant: As also, An Exposition on the ten Commandements, and the Lor
+
 1. To the CHRISTIAN Reader, the sauing knowledge of that truth which is accordingTitus 1. 1 to godlinesse.
 
 #####Body#####
